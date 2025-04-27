@@ -2,12 +2,17 @@
 
 What if I told you that most gamers are leaving huge savings on the table simply because they don't know the secrets you're about to discover? Usually pro users use these techniques. Let's find out!
 
+
 In this article, you will get some secret tips along with coupons for discounts on G2A that you will not find anywhere else on the internet. I sincerely hope that if you read this article properly, you will not need to go anywhere else.  
 If you have come only for **G2A discount codes**, then you can follow the link given below — **I got **50% Off** with it!**
 
 **Get Up to 20% to 50% Off Discount Code Updated . Follow the link below.**
 
-**https://www.coubn.com/g2a-discount-codes/**
+
+[![Alt text](https://github.com/user-attachments/assets/99158273-bd97-496e-a1fd-716cc3a96fd3)](https://www.coubn.com/g2a-discount-codes/)
+
+
+
 
 
 ## 1. Cart Cycling (Dynamic Discount Trigger)
