@@ -6,6 +6,7 @@ In this article, you will get some secret tips along with coupons for discounts 
 If you have come only for **G2A discount codes**, then you can follow the link given below — **I got **50% Off** with it!**
 
 **Get Up to 20% to 50% Off Discount Code Updated . Follow the link below.**
+
 https://www.coubn.com/g2a-discount-codes/
 
 
