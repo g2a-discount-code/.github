@@ -7,7 +7,7 @@ If you have come only for **G2A discount codes**, then you can follow the link g
 
 **Get Up to 20% to 50% Off Discount Code Updated . Follow the link below.**
 
-https://www.coubn.com/g2a-discount-codes/
+**https://www.coubn.com/g2a-discount-codes/**
 
 
 ## 1. Cart Cycling (Dynamic Discount Trigger)
