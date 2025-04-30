@@ -51,7 +51,7 @@ If you're worried, pay using G2A Shield for extra protection (optional).
 
 ---
 
-Most gamers only scratch the surface when it comes to savings. What if you could cut prices in half using your G2A discount code and a few hidden tricks no one talks about? Let’s go beyond the obvious.
+Most gamers only scratch the surface when it comes to savings. What if you could cut prices in half using your G2A coupon code and a few hidden tricks no one talks about? Let’s go beyond the obvious.
 
 ---
 
